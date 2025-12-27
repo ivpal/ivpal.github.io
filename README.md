@@ -1,1 +1,0 @@
-# ivpal.github.io
